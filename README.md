@@ -7,3 +7,4 @@ So I (Nerumancer) replied in the most honest way possible:
 <img width="644" height="473" alt="image" src="https://github.com/user-attachments/assets/3d2fd885-2f5f-4a30-ac6e-5572f791e1cb" />
 <pre></pre>
 Followed by mf I'm in
+We might create a Discord Server, so everyone can come and discuss about anything OS related or not :D
