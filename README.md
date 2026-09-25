@@ -8,4 +8,5 @@ So I (Nerumancer) replied in the most honest way possible:
 <pre></pre>
 Followed by mf I'm in
 <pre></pre>
-We might create a Discord Server, so everyone can come and discuss about anything OS related or not :D
+We might create a Discord Server, so everyone can come and discuss about anything OS related or not, we're far from being professionals, we're just BTS students at the LPO La Morandière of Granville, so any advice is welcome.
+Have a nice day!:D
